@@ -1,1 +1,0 @@
-# QG-small-group-evaluation
